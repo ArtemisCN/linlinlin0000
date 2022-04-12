@@ -4,5 +4,10 @@ FaceBook：Artemis
 WeChat：ArtemisYm 
 Telegram：@Yummuu
 Twitter：@WuNaiQwQ 
+个人博客:linioi.top
 QQ邮箱:2938620995@qq.com
+个人云盘:cloud.linioi.top
+个人娱乐网站:tiangou.linioi.top
+Google邮箱:w2938620995@gmail.com
 google邮箱：w2938620995@gmail.com
+Github仓库:github.com/ArtemisCN/linlinlin0000
