@@ -3,7 +3,7 @@ QQ：2938620995
 FaceBook：Artemis 
 WeChat：ArtemisYm 
 Telegram：@Yummuu
-Twitter：@WuNaiQwQ 
+Twitter：@userLinioi
 个人博客:linioi.top
 QQ邮箱:2938620995@qq.com
 个人云盘:cloud.linioi.top
